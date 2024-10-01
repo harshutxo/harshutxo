@@ -15,7 +15,7 @@
 
 - 📝 I regularly write articles on [https://www.blogger.com/blog/posts/5398478975429723048](https://www.blogger.com/blog/posts/5398478975429723048)
 
-- 💬 Ask me about **Blockchain, DSA ...**
+- 💬 Ask me about **Blockchain, DSA and LIFE ...**
 
 - 📫 How to reach me **thiswasharsh@gmail.com**
 
